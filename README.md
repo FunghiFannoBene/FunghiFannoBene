@@ -5,4 +5,4 @@ Always.
       
 🌟 for a star.
 
-Sorry if i'm messy!
+Sorry if I'm messy!
